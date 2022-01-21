@@ -1,1 +1,1 @@
-# Max-Bozack.github.io/
+# Max-Bozack.github.io
